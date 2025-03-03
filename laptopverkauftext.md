@@ -35,7 +35,7 @@ Der Laptop wurde **[FORMATIERT / AUFGESETZT]** und ist **sofort einsatzbereit**.
 ---
 
 ### **Versand:**  
-- **Kein unversicherter Versand!** Aufgrund betrügerischer Handlungen in der Vergangenheit erfolgt der Versand nur per **DHL versichert**.  
+- **Kein unversicherter Versand!** Aufgrund betrügerischer Handlungen in der Vergangenheit erfolgt der Versand nur per **versichert mit Sendungsverfolgung**.  
 
 ---
 
